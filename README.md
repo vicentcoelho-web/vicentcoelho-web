@@ -33,7 +33,7 @@ Aprendendo um pouco todos os dias.
 
 [Programação Utilizando IA](https://a.co/d/0gWKqguI)
 
-## 🌐 Redes Sociais
+## Redes Sociais
 
 Conecte-se comigo:
 
